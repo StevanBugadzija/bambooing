@@ -1,0 +1,2 @@
+# bambooing
+opposite to concreting
